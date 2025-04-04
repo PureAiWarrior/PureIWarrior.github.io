@@ -1,5 +1,5 @@
-# 纯i战神 :link: https://PureAiWarrior.github.io/Warrior.github.io 
-### :page_facing_up: [1](https://PureAiWarrior.github.io/PureIWarrior.github.io/tag.html) 
+# 纯i战神 :link: https://PureAiWarrior.github.io/Warrior
+### :page_facing_up: [1](https://PureAiWarrior.github.io/Warrior/tag.html) 
 ### :speech_balloon: 0 
 ### :hibiscus: 4736 
 ### :alarm_clock: 2025-04-03 22:16:43 
