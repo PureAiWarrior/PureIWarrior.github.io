@@ -1,4 +1,4 @@
-# 纯i战神 :link: https://PureAiWarrior.github.io/PureIWarrior.github.io 
+# 纯i战神 :link: https://PureAiWarrior.github.io/Warrior.github.io 
 ### :page_facing_up: [1](https://PureAiWarrior.github.io/PureIWarrior.github.io/tag.html) 
 ### :speech_balloon: 0 
 ### :hibiscus: 4736 
